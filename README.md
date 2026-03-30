@@ -19,9 +19,8 @@ We stock a wide range of hardware, including:
 ---
 
 ### 🚀 Services
-1.  **Bulk Orders:** Special pricing for construction contractors.
-2.  
-3.  **Expert Advice:** On-site guidance for choosing the right tools for your project.
+1.  **Bulk Orders:** wholsaler 
+   
 
 ---
 
